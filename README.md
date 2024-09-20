@@ -1,3 +1,3 @@
 # Usefull-Websites
 
-Activation Windows - https://keysok.ru/crack/266-aktivator-dlya-microsoft-office-2021.html
+Activation Windows and Office - https://keysok.ru/crack/266-aktivator-dlya-microsoft-office-2021.html
